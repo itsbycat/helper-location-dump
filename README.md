@@ -1,3 +1,3 @@
 ## for skeet and primordial users
 
-🔗 **Access the Tanya Location Converter Here:** [ta.nya.fan/](https://ta.nya.fan/)
+[🔗 Location Converter](https://alt.bycat.one/converter/)
